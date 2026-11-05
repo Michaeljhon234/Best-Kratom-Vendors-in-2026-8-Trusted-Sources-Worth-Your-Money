@@ -294,18 +294,20 @@ The kratom market is growing fast and becoming more competitive [1][2]. That's g
 
 ## References
 
-[1] Kratom Ecommerce Statistics - https://www.swell.is/content/kratom-ecommerce-statistics
+[1] [Kratom Ecommerce Statistics](https://www.swell.is/content/kratom-ecommerce-statistics)
 
-[2] Kratom Industry Growth Statistics - https://ezkratom.com/kratom-industry-growth-statistics/
+[2] [Kratom Industry Growth Statistics](https://ezkratom.com/kratom-industry-growth-statistics/)
 
-[3] Kratom Extract Market - https://www.coherentmarketinsights.com/industry-reports/kratom-extract-market
+[3] [Kratom Extract Market](https://www.coherentmarketinsights.com/industry-reports/kratom-extract-market)
 
-[4] The Kratom Company Review Product Range And Brand Credibility - https://run-for-them.raiselysite.com/b-kratom/posts/the-kratom-company-review-product-range-and-brand-credibility
+[4] [The Kratom Company Review: Product Range and Brand Credibility](https://run-for-them.raiselysite.com/b-kratom/posts/the-kratom-company-review-product-range-and-brand-credibility)
 
-[5] California's Kratom Landscape What You Need To Know In 2026 - https://krakenkratom.com/resources/californias-kratom-landscape-what-you-need-to-know-in-2026/
+[5] [California's Kratom Landscape: What You Need to Know in 2026](https://krakenkratom.com/resources/californias-kratom-landscape-what-you-need-to-know-in-2026/)
 
-[6] Inside Kratom Spot How We Maintain Quality Standards In 2026 - https://kratomspot.com/blog/inside-kratom-spot-how-we-maintain-quality-standards-in-2026
+[6] [Inside Kratom Spot: How We Maintain Quality Standards in 2026](https://kratomspot.com/blog/inside-kratom-spot-how-we-maintain-quality-standards-in-2026)
 
-[7] Ethical Kratom Sourcing Greenville - https://cbhd.news/blogs/kratom/ethical-kratom-sourcing-greenville
+[7] [Ethical Kratom Sourcing Greenville](https://cbhd.news/blogs/kratom/ethical-kratom-sourcing-greenville)
 
-[8] Kratom For Sale A Complete Buyers Guide For 2026 - https://sites.google.com/view/kratomguide/kratom-for-sale-a-complete-buyers-guide-for-2026
+[8] [Kratom for Sale: A Complete Buyer's Guide for 2026](https://sites.google.com/view/kratomguide/kratom-for-sale-a-complete-buyers-guide-for-2026)
+
+[9] [Kratom Usage Statistics: Who Uses Kratom, How Many, and Why](https://klaritykratom.com/blog/kratom-news/kratom-usage-stats/)
